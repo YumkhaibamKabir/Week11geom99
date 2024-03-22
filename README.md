@@ -3,7 +3,7 @@
 
    
 **Redeveloping the problem statement**
-Discussing and sharing ideas among the group members and finally comes with a project proposal after rigourous research.
+Discussing and sharing ideas among the group members and finally comes with a rectification of project outlines  after rigourous research.
 
 
 
